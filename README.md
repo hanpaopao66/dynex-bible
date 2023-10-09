@@ -27,4 +27,4 @@
  ![image](https://github.com/hanpaopao66/dynex-bible/blob/main/imgs/img_14.png)
  ![image](https://github.com/hanpaopao66/dynex-bible/blob/main/imgs/img_11.png)
 #2023年10月
-![image](https://github.com/hanpaopao66/dynex-bible/blob/main/imgs/IMAGE 2023-10-08 18:38:28.jpg)
+![image](https://github.com/hanpaopao66/dynex-bible/blob/main/imgs/img_15.jpg)
