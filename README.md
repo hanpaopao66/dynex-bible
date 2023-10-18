@@ -31,3 +31,5 @@
 ![image](https://github.com/hanpaopao66/dynex-bible/blob/main/imgs/img_16.png)
 ![image](https://github.com/hanpaopao66/dynex-bible/blob/main/imgs/img_17.png)
 ![image](https://github.com/hanpaopao66/dynex-bible/blob/main/imgs/img_18.png)
+![image](https://github.com/hanpaopao66/dynex-bible/blob/main/imgs/img_19.png)
+![image](https://github.com/hanpaopao66/dynex-bible/blob/main/imgs/img_20.png)
